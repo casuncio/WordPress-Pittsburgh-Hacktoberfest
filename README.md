@@ -25,7 +25,7 @@ Please ensure you have completed the following before we begin. All of the tools
 3.
 4.
 5.
-6.
+6. Carolyn Asuncion - [@carolynasuncion] (https://twitter.com/carolynasuncion)
 7.
 8.
 9.
